@@ -1,1 +1,1 @@
-ini adalah repository pertama saya diyah
+ini adalah repository pertama saya dah
